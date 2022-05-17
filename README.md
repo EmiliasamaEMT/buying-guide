@@ -1,0 +1,2 @@
+# buying-guide
+buying guide
